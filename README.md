@@ -33,10 +33,11 @@ https://discord.com/channels/869916537610448897/883967466374569985/8957216350327
 https://discord.com/channels/869916537610448897/883967466374569985/895720728261980241
 
 ### Screen Shorts
-![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/unknown.png)
-![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/unknown%20(2).png)
-![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/unknown%20(1).png)
+![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/Capture.png)
 ![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/Screenshot_20211007-225855_Discord.png)
-![imnage](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/capture2.png)
+![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/capture2.png)
+![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/unknown%20(1).png)
+![imnage](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/unknown%20(2).png)
+![imnage](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/unknown.png)
 
 
