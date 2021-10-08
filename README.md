@@ -6,7 +6,7 @@ Tovade#6617
 
 - asked bunch of questions related to coding and he failed in everyone of that screen shot giving below 
 
-- Then he starting gathering the issue of a guy name Assasin which was on old about another kid who was accussing us and i got his number ofc and talked with his dad I'm Addressing the screenshort and everything down there so that issue got resolved (Assassin#1234)
+- Then he starting gathering the issue of a guy name Assasin which was on old story about another kid who was accussing us and i got his number ofc and talked with his dad I'm Addressing the screenshort and everything down there so that issue got resolved (Assassin#1234) (not leaking his number because the issue has been solved)
 
 - He is also and racist used the N word with hard R which highly agaist discord tos also
 Everyscreen short is given below
