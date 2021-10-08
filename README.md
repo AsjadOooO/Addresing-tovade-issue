@@ -14,13 +14,13 @@ Every screenshot is given below
 - Today this Guy opened 7 issues in one of the repositories
 https://github.com/AsjadOooO/Zero-attacker/issues/7
 
-- Completely fake accusing first of all our all code is 'obfuscate which mean its encrypted so you can't see the code anyway and goes to the   repository which is linked is completely different (kid go do your research before doing something)
+- Completely fake accusing first of all our all code is 'obfuscate which mean its encrypted so you can't see the code anyway and goes to the   repository which is linked is completely different  its based on PERL our code is based on PYTHON (kid go do your research before doing something DIFFERNCE BETWEEN PERL AND PYTHON)
 
 So he just fakely accused us of no reason if someone still thinks about this bull shit warm welcome https://discord.gg/zyPEwvGUmg 
-Join my Discord server me and my friend (Dev7knight#3544) will screen share will show every single code 
+Join my Discord server me and my friend (Dev7knight#3544) will screen share will show every single code (THE CODE OUR IS BASED ON PYTHON THE PERSON HE SEND IS BASED ON PERL)
 anyway, the code is getting public on 25 stars anyway so if anyone wanna see to comes server  warm welcome there 
 
-- In the end, it just goes with the mentality of this kid that how pathetic and spoiled he is, I don't even know him nor do I code discord bot and you can't pursue anything coding discord bots (it's a good thing to do you learns a lot that's my opinion)
+- In the end, it just goes with the mentality of this kid that how pathetic and spoiled he is, I don't even know him nor do I code discord bot and you can't pursue anything coding discord bots (it's a good thing to do you learns stuff but that's my opinion)
 
 - This is the main reason for addressing this issue that he spammed our repository with false accusations which led me to open this issue or I would never address a discord old issues here so ya that's the main issue of it
 
