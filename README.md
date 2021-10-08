@@ -16,7 +16,7 @@ https://github.com/AsjadOooO/Zero-attacker/issues/7
 
 - Completely fake accusing first of all our all code is 'obfuscate which mean its encrypted so you can't see the code anyway and goes to the   repository which is linked is completely different  its based on PERL our code is based on PYTHON (kid go do your research before doing something DIFFERNCE BETWEEN PERL AND PYTHON)(https://github.com/TiugrewhiteRaven/Hacking_WhiteRave)repositorty link
 
-So he just fakely accused us of no reason if someone still thinks about this bull shit warm welcome https://discord.gg/zyPEwvGUmg 
+- So he just fakely accused us of no reason if someone still thinks about this bull shit warm welcome https://discord.gg/zyPEwvGUmg 
 Join my Discord server me and my friend (Dev7knight#3544) will screen share will show every single code (THE CODE OUR IS BASED ON PYTHON THE PERSON HE SEND IS BASED ON PERL)
 anyway, the code is getting public on 75 stars anyway so if anyone wanna see to comes server  warm welcome there 
 
