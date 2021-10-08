@@ -18,7 +18,7 @@ https://github.com/AsjadOooO/Zero-attacker/issues/7
 
 So he just fakely accussed us for no reason if someone still think about this bull shit warm welcome https://discord.gg/zyPEwvGUmg 
 Join my Discord server me and my friend (Dev7knight#3544) will screen share will show each and every single code 
-anyway the code is getting public on 25 stars anyway so if anyone wanna comes warm welcome there 
+anyway the code is getting public on 25 stars anyway so if anyone wanna see to comes server  warm welcome there 
 
 - At the end it just goes with the mentaility of this kid that how pathetic and spoiled he is , i don't even know him nor i code discord bot and you can't pursue anything coding discord bots (its a good thing to do you learns alot that's my opinion)
 
