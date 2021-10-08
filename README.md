@@ -15,7 +15,7 @@ Every screenshot is given below
 https://github.com/AsjadOooO/Zero-attacker/issues/7
 
 - Completely fake accusing first of all our all code is 'obfuscate which mean its encrypted so you can't see the code anyway and goes to the   repository which is linked is completely different  its based on PERL our code is based on PYTHON (kid go do your research before doing something LEAN DIFFERNCE BETWEEN PERL AND PYTHON)
-(LEARN WHAT IS DIFFERENCE BETWEEN CODING LANGUAGES
+(LEARN WHAT IS DIFFERENCE BETWEEN CODING LANGUAGES)
 (https://github.com/TiugrewhiteRaven/Hacking_WhiteRave)repositorty link
 
 - So he just fakely accused us of no reason if someone still thinks about this bull shit warm welcome https://discord.gg/zyPEwvGUmg 
