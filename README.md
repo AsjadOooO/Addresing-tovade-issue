@@ -14,7 +14,7 @@ Every screenshot is given below
 - Today this Guy opened 7 issues in one of the repositories
 https://github.com/AsjadOooO/Zero-attacker/issues/7
 
-- Completely fake accusing first of all our all code is 'obfuscate which mean its encrypted so you can't see the code anyway and goes to the   repository which is linked is completely different  its based on PERL our code is based on PYTHON (kid go do your research before doing something DIFFERNCE BETWEEN PERL AND PYTHON)
+- Completely fake accusing first of all our all code is 'obfuscate which mean its encrypted so you can't see the code anyway and goes to the   repository which is linked is completely different  its based on PERL our code is based on PYTHON (kid go do your research before doing something DIFFERNCE BETWEEN PERL AND PYTHON)(https://github.com/TiugrewhiteRaven/Hacking_WhiteRave)repositorty link
 
 So he just fakely accused us of no reason if someone still thinks about this bull shit warm welcome https://discord.gg/zyPEwvGUmg 
 Join my Discord server me and my friend (Dev7knight#3544) will screen share will show every single code (THE CODE OUR IS BASED ON PYTHON THE PERSON HE SEND IS BASED ON PERL)
@@ -37,4 +37,6 @@ https://discord.com/channels/869916537610448897/883967466374569985/8957207282619
 ![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/Screenshot_20211007-225855_Discord.png)
 ![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/Capture1.png)
 ![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/Capture.png)
+![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/Capture.png)
+
 
