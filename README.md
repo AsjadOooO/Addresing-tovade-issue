@@ -38,5 +38,6 @@ https://discord.com/channels/869916537610448897/883967466374569985/8957207282619
 ![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/Capture1.png)
 ![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/Capture.png)
 ![image](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/Capture.png)
+![imnage](https://github.com/AsjadOooO/Addresing-tovade-issue/blob/main/capture2.png)
 
 
