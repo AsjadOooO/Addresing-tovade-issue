@@ -14,7 +14,7 @@ Everyscreen short is given below
 - Today this Guy opened 7 issue in our one of the repository
 https://github.com/AsjadOooO/Zero-attacker/issues/7
 
-- Completely fake accussing first of all our all code is 'obsfucate' which mean its encrypted so you can't see the code anyway and goes to the   repository which is linked is completely different anyway (kid go do your research before doing something)
+- Completely fake accussing first of all our all code is 'obsfucate' which mean its encrypted so you can't see the code anyway and goes to the   repository which is linked is completely different (kid go do your research before doing something)
 
 So he just fakely accussed us for no reason if someone still think about this bull shit warm welcome https://discord.gg/zyPEwvGUmg 
 Join my Discord server me and my friend (Dev7knight#3544) will screen share will show each and every single code 
