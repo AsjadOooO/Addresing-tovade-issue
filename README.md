@@ -22,7 +22,7 @@ anyway the code is getting public on 25 stars anyway so if anyone wanna comes wa
 
 - At the end it just goes with the mentaility of this kid that how pathetic and spoiled he is , i don't even know him nor i code discord bot and you can't pursue anything coding discord bots (its a good thing to do you learns alot that's my opinion)
 
-- This is the main reason of addressing this issue that
+- This is the main reason of addressing this issue that he spammed our repository with false accusation which led me to open this issue or i would never address an discord old issues here so ya that's the main issue of it
 
 - Screen are gonnna be attach down there with message link anyone is warm welcome to join and see
 
